@@ -1,2 +1,0 @@
-# amarelinhatech
-Amarelinha Tech
